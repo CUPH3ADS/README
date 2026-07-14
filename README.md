@@ -10,4 +10,4 @@ spam following account is @diamondeyes-deftones , as i only follow friends here.
 
 DNI: PROSHIPPERS/DARKSHIPPERS/COMSHIPPERS, DOUBLES, ABLEISTS, HOMOPHOBES, TRANSPHOBES, PEDOPHILES,
 
-![](https://komarev.com/ghpvc/?username=cuph3ads)
+![](https://komarev.com/ghpvc/?username=cuph3ads&color=red&label=Guests)
